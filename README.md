@@ -46,7 +46,9 @@ But they bring the chaos of God upon the evil matrix which corrupted the earth a
 They are the perpetrators of all the evils that happen on the earth.
 
 • Wars.
+
 • Killings.
+
 • And Diseases.
 
 They corrupted human civilization with their different agendas. Which include the most infamous LGBTQ.
