@@ -11,6 +11,7 @@ What follows next is the arrival of the Two Witnesses.
 But…
 
 ## What are the Two Witnesses?
+![Image](https://github.com/user-attachments/assets/e1b1d61b-72be-4725-83a7-5bce2347ec32)
 
 We live in an occult world. Fueled by an evil matrix. The Two witnesses are two supernatural heroes or divine sent intervention to fight this matrix.
 
